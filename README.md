@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sima2121
 - 👀 I’m interested in ..
-- 🌱 I’m currently learning .sd
+- 🌱 I’m currently learning .sdds
 - 💞️ I’m looking to collaborate on ..
 - 📫 How to reach me ..
 weq
