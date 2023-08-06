@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sima2121
 - 👀 I’m interested in ..dsf
-- 🌱 I’m currently learning .sddsdsppp
+- 🌱 I’m currently learning .sddsdspppgh
 - 💞️ I’m looking to collaborate on ..
 - 📫 How to reach me ..c
 weqdsf
